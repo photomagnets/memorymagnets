@@ -34,7 +34,7 @@ Whether it's a wedding day, family vacation, newborn photos, pet memories, or sp
 
 Most photos remain hidden on phones and social media.
 
-Memory Magnets helps bring those memories back into daily life with custom picture magnets designed for refrigerators, offices, lockers, and magnetic boards.
+[Memory Magnets](https://memorymagnets.me) helps bring those memories back into daily life with custom picture magnets designed for refrigerators, offices, lockers, and magnetic boards.
 
 ## Categories
 
